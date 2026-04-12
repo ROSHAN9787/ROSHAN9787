@@ -23,7 +23,7 @@
 
 📫 Connect with Me
 
-- 🔗 LinkedIn: https://www.linkedin.com/in/roshan-joshi
+- 🔗 LinkedIn:www.linkedin.com/in/roshan-joshi-a2ab82338
 - 📷 Instagram: https://instagram.com/roshan_joshi07
 
 ---
